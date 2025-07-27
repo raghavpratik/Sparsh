@@ -7,7 +7,7 @@ You can find him at
 - [Here](https://www.unsparsh.netlify.app)
 - [Here](https://www.sparshsingh.netlify.app)
 - [Linkedin](https://www.linkedin.com/in/unsparsh)
-- [Github](https://www.github/unsparsh)
+- [Github](https://www.github.com/unsparsh)
 
 ## 🧠 When I Was Lost...
 
